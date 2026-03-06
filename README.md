@@ -1,4 +1,4 @@
-![https://t4.ftcdn.net/jpg/04/74/03/29/360_F_474032906_JKlxVoBhQLVfSTtrSZByJVM8u6pn4gP6](https://t4.ftcdn.net/jpg/04/74/03/29/360_F_474032906_JKlxVoBhQLVfSTtrSZByJVM8u6pn4gP6.jpg)
+![https://t3.ftcdn.net/jpg/11/71/94/34/360_F_1171943486_ul1zxInuh8FYLJ8zIZta9khsIgVMhBf3.jpg](https://t3.ftcdn.net/jpg/11/71/94/34/360_F_1171943486_ul1zxInuh8FYLJ8zIZta9khsIgVMhBf3.jpg)
 
 # Olá viajante 👋
 
