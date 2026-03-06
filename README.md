@@ -1,6 +1,7 @@
 # Olá viajante
 
 Sou estudante de **Técnico em Informática**
+
 Atualmente no primeiro semestre
 
 # Interesses Pessoais
